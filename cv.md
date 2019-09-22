@@ -1,4 +1,4 @@
-##Resume:
+## Resume:
 1. Ljubov Kuralikova
 2. Contact info:
   * email: ljubashasolovjova@gmail.com
