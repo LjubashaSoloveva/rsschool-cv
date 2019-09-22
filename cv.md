@@ -1,5 +1,5 @@
 # Resume:
-1. Ljubov Kuralikova
+1. *Name:* Ljubov Kuralikova
 2. *Contact info:*
   * email: ljubashasolovjova@gmail.com
   * phone: +375(29)3047614
